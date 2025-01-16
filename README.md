@@ -1,4 +1,4 @@
-Les gens qui voient de travers mais pas à l'envers
+Les gens qui voient de travers
 Pensent que les bancs verts
 Qu'on voit sur les trottoirs
 Sont faits pour les impotents ou les ventripotents
